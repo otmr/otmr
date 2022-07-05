@@ -1,4 +1,10 @@
-# otmr 
+```
+      o            
+      |            
+o-o  -o-  o-O-o  o-o 
+| |   |   | | |  |   
+o-o   o   o o o  o 
+```
 
 interested in a sticker pack or using an otmr drawing? email otmrowns@gmail.com
 
