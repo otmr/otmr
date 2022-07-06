@@ -8,7 +8,7 @@ o-o   o   o o o  o
 
 > working on creating NFTs to enable digital use and collection that will also include sticker packs. 
 
-> interested in a drawing that is not currently avaible or want just a sticker pack ? email otmrowns@gmail.com
+> interested in a drawing that is not currently available or want just a sticker pack ? email otmrowns@gmail.com
 
 **social**
 
