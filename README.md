@@ -20,7 +20,7 @@ o-o   o   o o o  o
 
 > [@o.t.m.r](https://www.instagram.com/o.t.m.r) -> distorted photos & other distorted stuff
 
-> [@ otmr_creates](https://www.instagram.com/otmr_creates) -> web3 stuff maybe
+> [@otmr_creates](https://www.instagram.com/otmr_creates) -> web3 stuff maybe
 
 
 
