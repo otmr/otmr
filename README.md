@@ -15,7 +15,7 @@ working on creating NFTs to enable digital use and collection, some will include
 
 *interested in a drawing or distorted work that is not currently available or want just a sticker pack ? email otmrowns@gmail.com*
 
-**social**
+**SOCIAL**
 
 *twitter* 
 > [@otmr_creates](https://twitter.com/otmr_creates) -> entering & exploring the web3 space
