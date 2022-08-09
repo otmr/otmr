@@ -13,7 +13,9 @@ working on creating NFTs to enable digital use and collection, some will include
 
 > [opensea](https://opensea.io/otmr)
 
-*interested in a drawing or distorted work that is not currently available or want just a sticker pack ? email otmrowns@gmail.com*
+*interested in a drawing or distorted work that is not currently available or want just a sticker pack?*
+
+> email otmrowns@gmail.com
 
 **SOCIAL**
 
