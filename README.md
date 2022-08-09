@@ -7,7 +7,7 @@ o-o   o   o o o  o
 ```
 **NFTs**
 
-> working on creating NFTs to enable digital use and collection, some will include sticker packs for auction winner on Foundation
+working on creating NFTs to enable digital use and collection, some will include sticker packs for auction winner on foundation
 
 > [foundation](https://foundation.app/@otmr)
 
