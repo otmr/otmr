@@ -27,7 +27,7 @@ working on creating NFTs to enable digital use and collection, some will include
 
 > [@o.t.m.r](https://www.instagram.com/o.t.m.r) -> distorted photos & other distorted stuff
 
-> [@otmr_creates](https://www.instagram.com/otmr_creates) -> NFTs 
+> [@otmr_creates](https://www.instagram.com/otmr_creates) -> NFTs - created & collected
 
 
 
