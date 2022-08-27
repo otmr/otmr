@@ -11,7 +11,7 @@ working on creating NFTs to enable digital use and collection, some will include
 
 > [foundation](https://foundation.app/@otmr)
 
-> [opensea](https://opensea.io/otmr)
+> [opensea](https://opensea.io/otmr?tab=created)
 
 *interested in a drawing or distorted work that is not currently available or want just a sticker pack?*
 
