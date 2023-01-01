@@ -7,9 +7,11 @@ o-o   o   o o o  o
 ```
 **NFTs**
 
-working on creating NFTs to enable digital use and collection, some will include sticker packs for auction winner on foundation
+NFTs to enable digital use and collection, some will include sticker packs for auction winner on foundation
 
 > [foundation](https://foundation.app/@otmr)
+
+> [manifold open edition - the drink was having me](https://app.manifold.xyz/c/otmr)
 
 > [opensea](https://opensea.io/otmr?tab=created)
 
