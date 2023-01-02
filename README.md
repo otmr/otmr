@@ -11,7 +11,7 @@ NFTs to enable digital use and collection, some will include sticker packs for a
 
 > [foundation](https://foundation.app/@otmr)
 
-> [manifold open edition - the drink was having me](https://app.manifold.xyz/c/otmr)
+> [manifold limited edition - the drink was having me](https://app.manifold.xyz/c/otmr)
 
 > [opensea](https://opensea.io/otmr?tab=created)
 
