@@ -25,9 +25,9 @@ NFTs to enable digital use and collection, some will include sticker packs for t
 > [@otmr_creates](https://twitter.com/otmr_creates)
 
 *instagram* 
-> [@otmr_creates](https://www.instagram.com/otmr_creates)
+> [@otmr.draws](https://www.instagram.com/otmr.draws)
 
-> [@o.t.m.r](https://www.instagram.com/o.t.m.r) -> archive
+> [@o.t.m.r](https://www.instagram.com/o.t.m.r)
 
 
 
