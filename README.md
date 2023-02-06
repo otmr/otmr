@@ -9,11 +9,11 @@ o-o   o   o o o  o
 
 NFTs to enable digital use and collection, some will include sticker packs for the first collector on foundation
 
-> [foundation](https://foundation.app/@otmr)
+> [foundation](https://foundation.app/@_otmr_)
 
 > [manifold limited edition - the drink was having me](https://app.manifold.xyz/c/otmr)
 
-> [opensea](https://opensea.io/otmr?tab=created)
+> [opensea](https://opensea.io/_otmr_?tab=created)
 
 *interested in a drawing or distorted work that is not currently available or want just a sticker pack?*
 
