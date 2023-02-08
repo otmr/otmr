@@ -5,17 +5,20 @@ o-o  -o-  o-O-o  o-o
 | |   |   | | |  |   
 o-o   o   o o o  o 
 ```
+
+*interested in a drawing or distorted work that is not currently available or want a sticker pack?*
+
+> email otmrowns@gmail.com
+
 **NFTs**
 
 NFTs to enable digital use and collection, some will include sticker packs for the first collector on foundation
 
-> [foundation](https://foundation.app/@otmr)
+*otmr creates*
 
-> [opensea](https://opensea.io/otmr?tab=created)
+> [foundation - otmr](https://foundation.app/@otmr)
 
-*interested in a drawing or distorted work that is not currently available or want just a sticker pack?*
-
-> email otmrowns@gmail.com
+> [opensea - otmr](https://opensea.io/otmr?tab=created)
 
 *otmr collects*
 
