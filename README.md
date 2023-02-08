@@ -18,7 +18,7 @@ NFTs to enable digital use and collection, some will include sticker packs for t
 
 > [foundation - otmr](https://foundation.app/@otmr)
 
-> [opensea - otmr](https://opensea.io/otmr?tab=created)
+> [opensea - otmr](https://opensea.io/otmr)
 
 *otmr collects*
 
