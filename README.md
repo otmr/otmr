@@ -9,13 +9,19 @@ o-o   o   o o o  o
 
 NFTs to enable digital use and collection, some will include sticker packs for the first collector on foundation
 
-> [foundation](https://foundation.app/@_otmr_)
+> [foundation](https://foundation.app/@otmr)
 
-> [opensea](https://opensea.io/_otmr_?tab=created)
+> [opensea](https://opensea.io/otmr?tab=created)
 
 *interested in a drawing or distorted work that is not currently available or want just a sticker pack?*
 
 > email otmrowns@gmail.com
+
+*otmr collects*
+
+> [foundation - otmr_collects](https://foundation.app/@otmr_collects)
+
+> [opensea - otmr_collects](https://opensea.io/otmr_collects)
 
 **SOCIAL**
 
